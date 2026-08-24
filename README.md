@@ -3,7 +3,7 @@
 <br><p align="center">　　![iamge](https://files.catbox.moe/b72lte.gif)
 <br><p align="center"> 　![image](https://gifcity.carrd.co/assets/images/gallery262/27156d61.gif?v=3fc8f5cd) ${\textsf{\color{#5e6e73} TINA }}$ ${\textsf{\color{#fff9dd} / }}$ ${\textsf{\color{#999999} GUILLOTINA }}$
 <br><p align="center"> ${\textsf{\color{#ff1b1b}  Iwec at all times, I lash out and get triggered easily.}}$
-<br><p align="center">　　 ${\textsf{\color{#CDD2D4FF}　She lusts with a never ending hunger! }}$　　　　　　　　　
+<br><p align="center"> ${\textsf{\color{#CDD2D4FF}　She lusts with a never ending hunger!}}$　　　　　　　　　
 
 
 
