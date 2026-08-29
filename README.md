@@ -5,5 +5,6 @@
 <br><p align="center"> ${\textsf{\color{#ff1b1b}  Iwec at all times, I lash out and get triggered easily.}}$
 <br><p align="center"> ${\textsf{\color{#CDD2D4FF}　She lusts with a never ending hunger!}}$　　　　　　　　　
 
-
-
+<br><p align="center"> ok doll pup
+<br><p align="center">  ![image](https://files.catbox.moe/lp78bg.png)
+<br><p align="center">  ![image](https://files.catbox.moe/2jbte2.png)
