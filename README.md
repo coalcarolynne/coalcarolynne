@@ -19,7 +19,7 @@ im offtab / afk/ asleep  most of the time so w2i(uf) please
 
 i block / hide if i dont like u + i block freely
 </details>
- <div align="right">
+ <div align="center">
 <details>
 <summary> the dawgs </summary><br>
 
