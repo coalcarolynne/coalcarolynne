@@ -1,33 +1,46 @@
-<br><p align="center">　　![Visitors](https://api.visitorbadge.io/api/visitors?path=coal-irl&label=%E0%B8%85%20%E0%B8%85&labelColor=%23e0c064&countColor=%23c07821&style=flat&labelStyle=upper)
-<br><p align="center">　[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Sour+Gummy&pause=1000&color=C07821&center=true&width=435&lines=I+love+my+family+and+friends+%C6%90%3D3)](https://git.io/typing-svg)
-<br><p align="center">　　![image](https://dl.glitter-graphics.com/pub/3772/3772473attv5w51v9.gif)
-<br><p align="center"> 　![image](https://64.media.tumblr.com/cb5d7ea97955c1008248d9ed07b71fc8/33482cf83af8f0c3-a2/s75x75_c1/19dc8eac6abf254cfb48a7d2e5b9fd8a5c5685b2.webp) ${\textsf{\color{#ca8027} TINA }}$ ${\textsf{\color{#fdf6c2} / }}$ ${\textsf{\color{#e2c25f} DOMO }}$
-<br><p align="center"> ${\textsf{\color{#ff1b1b}  Iwec at all times, Fucking respect boundaries??}}$
-<br><p align="center"> ${\textsf{\color{#fdf6c2}　If you make me or my friends uncomf ur getting blocked}}$　　　　　
+<img align="left" src="https://64.media.tumblr.com/953244f836960a1c545dfcb8f25b92ee/3018f23c05cfe166-7d/s1280x1920/4490a10d832d3494d8d0f2f484f923299018cfa8.jpg" width="20%" > <img align="right" src="https://64.media.tumblr.com/953244f836960a1c545dfcb8f25b92ee/3018f23c05cfe166-7d/s1280x1920/4490a10d832d3494d8d0f2f484f923299018cfa8.jpg" width="20%" >
+
+<br><p align="center"> [![Visitors](https://api.visitorbadge.io/api/visitors?path=coal-irl&label=coals%20in%20stockings%20%E2%99%A1&labelColor=%23a63715&countColor=%23242424&style=flat)](https://visitorbadge.io/status?path=coal-irl)
+<br><p align="center">　　![image](https://files.catbox.moe/sklxcq.webp)
+<br><p align="center"> 　![image](https://64.media.tumblr.com/6a0e35ef4f0db0eb92ceb3a0a18cbf00/7f3d4be7fc6cd9ab-69/s75x75_c1/457ca93b9157ad0195e26dd4ed01d6109e8f0a15.gifv) ${\textsf{\color{#777777} COAL }}$ ${\textsf{\color{#e2c25f} / }}$ ${\textsf{\color{#d41914} DOMO }}$
+<br><p align="center"> ${\textsf{\color{#777777} She gave a job to me, the rock.}}$
+<br><p align="center"> ${\textsf{\color{#d41914}Coal Kin <3}} 　$![image](https://64.media.tumblr.com/ea8cc8ce6d9de0706d29cdefa7e5245b/3e8f7b4a428fb6ed-25/s75x75_c1/41d5f94e161ee4c40cf5438090046d6b818ec410.gifv)
+<br><p align="center"> ![image](https://64.media.tumblr.com/707c51baf00b387243bc9e8a69f703ac/55e2c8658203e626-87/s75x75_c1/bac5b354d33e5e85090af9fbb2f89a0a060569e2.gifv)
    <div align="center">
 </details>
 <details>
-<summary> pt info </summary><br>
+<summary>  &nbsp;&nbsp; <img src="https://64.media.tumblr.com/ad6b76b5bb77590470722198c46625a2/3e8f7b4a428fb6ed-11/s75x75_c1/354aa01c1155840a8fbb4d4d5ea5eb931bc431e8.gifv" width="20" alt="icon" />&nbsp;&nbsp;  byi </summary><br>
+${\textsf{\color{#e2c25f} IWC at all times, i have anger issues }}$ 
+${\textsf{\color{#d41914} I block freely + If you make me or my friends uncomf ur getting blocked}}$ 
+${\textsf{\color{#e2c25f} Don't copy/ inspo my skins please }}$
+${\textsf{\color{#d41914} If you make any brown character (Ginger, Cosmo, Brusha etc) white, I will block you}}$
 
-pt players iwc at all times, i have anger issues ok ?
-
-i have dark/ offensive humor, if you're uncomf please state it to me kindly
-
-dont copy / inspo my skins 
-
-im offtab / afk/ asleep  most of the time so w2i(uf) please
-
-i block / hide if i dont like u + i block freely
 </details>
  <div align="center">
 <details>
-<summary> the dawgs </summary><br>
-
-[indie](https://github.com/sw33tsug4rcookie)    　[rotz](https://github.com/neverwanted2dance)    　[aether](https://github.com/MrNovalite)   　 [devan](https://github.com/devanreedirl)
-
-[noe](https://github.com/SweetTenshi)    　[kiwi](https://github.com/kiwiconiccc)   　 [muffin](https://github.com/littleapplemuffins)    　[gourdy](https://github.com/tragicomedyy)    　
-[stinky](https://github.com/stinkyrustyfork)   　 [kai](https://github.com/CosmoThePastryy)    　 [void](https://github.com/army-in-pink) 
-
+<summary>  &nbsp;&nbsp; <img src="https://64.media.tumblr.com/2e1c5885588b914e4e6300d1b79cee21/7f3d4be7fc6cd9ab-34/s75x75_c1/3ccab3fef59761450e76a81225df3db1b87af591.gifv" width="20" alt="icon" />&nbsp;&nbsp;    "why do you kin a dog ew" </summary><br>
+${\textsf{\color{#d41914} Okay, here's why I kin Coal ;}}$
+ ${\textsf{\color{#e2c25f} Ever since I was a kid, I did NOT like Christmas at all, I could tolerate it,but I just }}$
+  ${\textsf{\color{#e2c25f} found it annoying in general.}}$
+   ${\textsf{\color{#e2c25f} Christmas was the one holiday where I saw my family members overwork }}$
+   ${\textsf{\color{#e2c25f} themselves just for forgetting to buy gifts}}$
+   ${\textsf{\color{#e2c25f} for people, }}$
+   ${\textsf{\color{#e2c25f} Christmas is just an excuse to stress }}$
+    ${\textsf{\color{#e2c25f} people out just to buy gifts that nobody will even open or use in their life. }}$
+   ${\textsf{\color{#d41914} Christmas isn't even that exciting anyways lmao.}}$
+      
+   ${\textsf{\color{#777777} Plus she's literally me lmao}}$
 </details>
 
-<br><p align="center"> ![image](https://64.media.tumblr.com/567c7cd75ef2957d21c52909ca9fd5be/f8dd20c94bd9ece2-5a/s250x400/e0724f0afa21bd5afa2453408aa93c8ed44833d5.gifv)
+<br><p align="center"> ![image](https://64.media.tumblr.com/e85c41d5c1a7f351e15288a32cf8340f/55e2c8658203e626-5e/s400x600/508f6a3a27674e3509f14bd7ecd8146e4ba0de8f.pnj)
+
+<div align="center">
+</details>
+<details>
+<summary>  &nbsp;&nbsp; <img src="https://64.media.tumblr.com/3508d1418d84d13dc609804d9d646703/3e8f7b4a428fb6ed-3c/s75x75_c1/129249e0ce3116fa8ae050e08da7d8f2118b156f.gifv" width="20" alt="icon" />&nbsp;&nbsp; stamps </summary><br>
+
+   ![image](https://64.media.tumblr.com/d9e5b0553e9076336f86d9b1b7c71771/51ada2cb96a79e39-0c/s100x200/103a330146657ddfd1c247291d941a3be037e8a9.pnj) ![image](https://64.media.tumblr.com/6973d45042c476650a630108588878ec/51ada2cb96a79e39-86/s100x200/ac6cdc1dfe4e0cb338c2f4e8cc63fc4f8ca7274f.pnj) ![image](https://64.media.tumblr.com/e29047768bd7cc5baa6aed698d0dac9e/51ada2cb96a79e39-ec/s100x200/6864fc9dccbe359b1b35847cfedb5f366931a4b3.pnj) 
+   ![image](https://64.media.tumblr.com/3d2127349d998db8efa5d7430ae21da6/55e2c8658203e626-c0/s250x400/adeedf8cd734f2fd0cbe389fe4026eeb7f2c83de.gifv) ![image](https://64.media.tumblr.com/ad95afcb7d11d071c011dc0a5198e18d/55e2c8658203e626-71/s250x400/e176beff8ba9a9e1c2e71a23fe006e61c6707795.gifv)
+   ![image](https://64.media.tumblr.com/dc15ea25138f2ebc2b31aa59834d4574/55e2c8658203e626-7b/s250x400/cf5c96a5cf3b83a1fd615bddf57f688126f9e2a9.gifv) ![image](https://64.media.tumblr.com/01e499688e47a605627aadc18a21cdbc/8cae534c70692823-b6/s100x200/e81c17ec7f146ae56e934863af83f3319b15f220.gifv) ![image](https://64.media.tumblr.com/2e8710acf3523ae9fa205b742276d6ce/9e7dc4019a59bb99-c6/s100x200/00b1554bfb38a64c15824a491e1280105ae710a1.pnj) ![image](https://64.media.tumblr.com/73cb2c35ee38892c3aa7614693d66740/8d211a61eb8550e9-bb/s250x400/b69948fbae4124d3a166369622298b0ba4e1a2e9.gifv) ![image](https://64.media.tumblr.com/df1e562c0d877f653a62baa70bab7178/68e37ce4f6a4d46b-2a/s100x200/0340ff90e828b2a4854713c673b485103cf194f3.gifv)
+   
+</details>
