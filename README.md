@@ -45,3 +45,13 @@ ${\textsf{\color{#d41914} Okay, here's why I kin Coal ;}}$
    ![image](https://64.media.tumblr.com/dc15ea25138f2ebc2b31aa59834d4574/55e2c8658203e626-7b/s250x400/cf5c96a5cf3b83a1fd615bddf57f688126f9e2a9.gifv) ![image](https://64.media.tumblr.com/01e499688e47a605627aadc18a21cdbc/8cae534c70692823-b6/s100x200/e81c17ec7f146ae56e934863af83f3319b15f220.gifv) ![image](https://64.media.tumblr.com/2e8710acf3523ae9fa205b742276d6ce/9e7dc4019a59bb99-c6/s100x200/00b1554bfb38a64c15824a491e1280105ae710a1.pnj) 
    <br><p align="center"> ![image](https://64.media.tumblr.com/73cb2c35ee38892c3aa7614693d66740/8d211a61eb8550e9-bb/s250x400/b69948fbae4124d3a166369622298b0ba4e1a2e9.gifv)   
 </details>
+
+</details>
+
+<div align="center">
+</details>
+<details>
+<summary>  &nbsp;&nbsp; <img src="https://64.media.tumblr.com/3adbf63820be4ed78a6a33c926910b60/9de51f74296d3c5e-44/s75x75_c1/553833df4d98a580744701c37fb25a1269b73255.gifv" width="20" alt="icon" />&nbsp;&nbsp; awards </summary><br>
+
+   <br><p align="center"> ![image](https://64.media.tumblr.com/97ff285601a4237c83ffef1b71ec6542/c77fd2f4f26c6fd6-bd/s250x400/2ca3f0094eddb21917762de561b3811fa7e63394.pnj) ![image](https://64.media.tumblr.com/6022c84cd3d975231c3fa8c547b11879/c77fd2f4f26c6fd6-6a/s250x400/550f59fa6ce550d3312062895c03dd62927ed11a.pnj) ![image](https://64.media.tumblr.com/191a58c66412d7931604a7969f771117/c77fd2f4f26c6fd6-73/s400x600/95d94ff19b8760dd62e028049c94d293aaa43ba1.pnj) ![image](https://64.media.tumblr.com/3ecd96730e66aa9309803045ba6be4f1/c77fd2f4f26c6fd6-e9/s400x600/7626e588405ef9219e344cf29103fec5d7fcfa26.pnj)
+</details>
