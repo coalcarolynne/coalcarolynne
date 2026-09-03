@@ -21,7 +21,8 @@ ${\textsf{\color{#d41914} If you make any brown character (Ginger, Cosmo, Brusha
 <details>
 <summary>  &nbsp;&nbsp; <img src="https://64.media.tumblr.com/2e1c5885588b914e4e6300d1b79cee21/7f3d4be7fc6cd9ab-34/s75x75_c1/3ccab3fef59761450e76a81225df3db1b87af591.gifv" width="20" alt="icon" />&nbsp;&nbsp;    "why do you kin a dog ew" </summary><br>
 ${\textsf{\color{#d41914} Okay, here's why I kin Coal ;}}$
- ${\textsf{\color{#e2c25f} Ever since I was a kid, I did NOT like Christmas at all, I could tolerate it,but I just }}$
+ ${\textsf{\color{#e2c25f} Ever since I was a kid, I did NOT like Christmas at all,}}$
+  ${\textsf{\color{#e2c25f} I could tolerate it,but I just }}$
   ${\textsf{\color{#e2c25f} found it annoying in general.}}$
    ${\textsf{\color{#e2c25f} Christmas was the one holiday where I saw my family members overwork }}$
    ${\textsf{\color{#e2c25f} themselves just for forgetting to buy gifts}}$
