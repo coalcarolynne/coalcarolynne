@@ -13,7 +13,8 @@
 ${\textsf{\color{#e2c25f} IWC at all times, i have anger issues }}$ 
 ${\textsf{\color{#d41914} I block freely + If you make me or my friends uncomf ur getting blocked}}$ 
 ${\textsf{\color{#e2c25f} Don't copy/ inspo my skins please }}$
-${\textsf{\color{#d41914} If you make any brown character (Ginger, Cosmo, Brusha etc) white, I will block you}}$
+${\textsf{\color{#d41914} If you make any brown character (Ginger, Cosmo, Brusha etc) white,}}$
+  ${\textsf{\color{#d41914} I will block you}}$
 
 </details>
  <div align="center">
