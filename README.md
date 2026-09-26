@@ -16,7 +16,7 @@ ${\textsf{\color{#e2c25f} Don't copy/ inspo my skins please }}$
 ${\textsf{\color{#d41914} If you make any brown character (Ginger, Cosmo, Brusha etc) white,}}$
   ${\textsf{\color{#d41914} I will block you}}$
    
-![image](https://files.catbox.moe/jlwl2z.png) ![image](https://files.catbox.moe/mafszj.png) ![image](https://files.catbox.moe/udewmd.png) ![image](https://files.catbox.moe/y8fmzn.png) ![image](https://files.catbox.moe/qzr3ln.png)
+![image](https://files.catbox.moe/jlwl2z.png) ![image](https://files.catbox.moe/mafszj.png)  ![image](https://files.catbox.moe/y8fmzn.png) 
 </details>
  <div align="center">
 <details>
