@@ -3,7 +3,7 @@
 <br><p align="center"> [![Visitors](https://api.visitorbadge.io/api/visitors?path=coal-irl&label=coals%20in%20stockings%20%E2%99%A1&labelColor=%23a63715&countColor=%23242424&style=flat)](https://visitorbadge.io/status?path=coal-irl)
 <br><p align="center">　　![image](https://64.media.tumblr.com/96c2e686865ccaee3ef79318b82a6e88/b0a9a50417e4a061-43/s400x600/5396f59c0a4a6d480599d5d89c9181d3991d0617.pnj)
 <br><p align="center"> 　![image](https://64.media.tumblr.com/6a0e35ef4f0db0eb92ceb3a0a18cbf00/7f3d4be7fc6cd9ab-69/s75x75_c1/457ca93b9157ad0195e26dd4ed01d6109e8f0a15.gifv) ${\textsf{\color{#777777} COAL }}$ ${\textsf{\color{#e2c25f} / }}$ ${\textsf{\color{#d41914} DOMO }}$
-<br><p align="center"> ${\textsf{\color{#777777} She gave a job to me, the rock.}}$
+<br><p align="center"> ${\textsf{\color{#777777} Ignore the anon on my ata pls}}$
 <br><p align="center"> ${\textsf{\color{#d41914}Coal Kin <3}} 　$![image](https://64.media.tumblr.com/ea8cc8ce6d9de0706d29cdefa7e5245b/3e8f7b4a428fb6ed-25/s75x75_c1/41d5f94e161ee4c40cf5438090046d6b818ec410.gifv)
 <br><p align="center"> ![image](https://64.media.tumblr.com/707c51baf00b387243bc9e8a69f703ac/55e2c8658203e626-87/s75x75_c1/bac5b354d33e5e85090af9fbb2f89a0a060569e2.gifv)
    <div align="center">
@@ -11,10 +11,10 @@
 <details>
 <summary>  &nbsp;&nbsp; <img src="https://64.media.tumblr.com/ad6b76b5bb77590470722198c46625a2/3e8f7b4a428fb6ed-11/s75x75_c1/354aa01c1155840a8fbb4d4d5ea5eb931bc431e8.gifv" width="20" alt="icon" />&nbsp;&nbsp;  byi </summary><br>
 ${\textsf{\color{#e2c25f} IWC at all times, i have anger issues }}$ 
-${\textsf{\color{#d41914} I block freely + If you make me or my friends uncomf ur getting blocked}}$ 
+${\textsf{\color{#d41914} I block freely}}$ 
 ${\textsf{\color{#e2c25f} Don't copy/ inspo my skins please }}$
-${\textsf{\color{#d41914} If you make any brown character (Ginger, Cosmo, Brusha etc) white,}}$
-  ${\textsf{\color{#d41914} I will block you}}$
+${\textsf{\color{#d41914} Critical profic}}$
+  ${\textsf{\color{#d41914} I don't care about ship discourse}}$
    
 ![image](https://files.catbox.moe/jlwl2z.png) ![image](https://files.catbox.moe/mafszj.png)  ![image](https://files.catbox.moe/y8fmzn.png) 
 </details>
