@@ -8,3 +8,8 @@ To my friends reading this, thank you for being there for me and sorry.
 I know nobody cares at this point because i'm just "that coal kin/person" and that's understandable.
 <br><p align="center"> Shit so crazy we got the pedophile of all people saying smth 
 <br><p align="center"> ![image](https://files.catbox.moe/cdv2gy.png)
+
+
+<br><p align="center">**people are faking clips of me while im asleep oh ok**
+<br><p align="center">02:34 PM [340 . waittt uhm abc] I love coal too much she's more than just a piece of coal she's my gf
+<br><p align="center">02:34 PM [340 . waittt uhm abc] I love coal too much she's more than just a piece of coal she is the love of my life
