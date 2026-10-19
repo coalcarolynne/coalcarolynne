@@ -13,7 +13,7 @@ Look, if you're a random person or someone i've bullied and have a grudge agains
 <img width="463" height="218" alt="image" src="https://github.com/user-attachments/assets/6c1dfbef-0ba2-4a30-9c9f-d8a9cf14daff" />
 <img width="470" height="179" alt="image" src="https://github.com/user-attachments/assets/af439dca-53ba-45cf-ab50-17efc78bcd56" />
 
-The Gourdy yume and their friend are doing this and are faking clips of me, seen from above. I have never told anyone in my life to take their own life, this is geuinenly such disgusting and shitty behavior to do this because I call you out for liking kids, you and your friends are fucking disgusting, I blocked you for a reason, you are 17 turning 18, you even admitted to being a zoophile too, log off.
+The Gourdy yume and their friend are doing this and are faking clips of me, seen from above. I have never told anyone in my life to take their own life, this is genuinely such disgusting and shitty behavior to do this because I call you out for liking kids, you and your friends are fucking disgusting, I blocked you for a reason, you are 17 turning 18, you even admitted to being a zoophile too, log off.
 
 02:52[codypupp on github s-ata pls] whispers: actuallY!!! iim medically regocnised/diagnosed as being a zoo!!!! NOT a pred!!!!!!!!!!!!!!!!
 
