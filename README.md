@@ -15,7 +15,7 @@ The Gourdy yume and their friend are doing this and are faking clips of me, seen
 
 Hey, one of my ex friends (minibuh/ minnie) has suicide baited, guilt tripped, and love bombed me and my friend group. They had threatened to send a recording of them shooting themself, and got mad at me and my friends for not responding in 1 minute after they've sent their message(s).
 
-<br><p align="center"><img width="300" height="400" alt="image" src="https://files.catbox.moe/st9cby.webp" />
+<br><p align="center"><img width="400" height="400" alt="image" src="https://files.catbox.moe/st9cby.webp" />
 <br><p align="center">10:16 PM[🌙 whered the sun go???] whispers: coal whats ur discord
 <br><p align="center">10:16 PM[🌙 whered the sun go???] whispers: coal
 <br><p align="center">10:16 PM[🌙 whered the sun go???] whispers: can you stop ignoring me just because you got sent an apology or n
@@ -24,10 +24,7 @@ you sent this before i blocked you minutes later:
 11:20 PM[she/her pronouns] whispers: i luv u ocoal im sorry for wanting to stop hurting and hurting everyone by wanting to be safe
 i blocked you at 11:22PM EST and had taken a screenshot at 11:23PM EST
 minutes, later you decide to use my ip to make a fake death threat by using inspeact element, I don't even type like this unless its a serious post/ doc
-
 <br><p align="center">![image](https://files.catbox.moe/benps4.png)
 <br><p align="center">![image](https://files.catbox.moe/0a959v.png)
-
 <br><p align="center">Proof of how it easy it is to inspect element:
-
 <br><p align="center">![image](https://64.media.tumblr.com/a423bbd6e1aa1299478cb22d00d2a7d5/e320fb5a865e1204-59/s500x750/f0a4eab8d46b7955b0318bb9c7a25f56b5db0817.gifv)
