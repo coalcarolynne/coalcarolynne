@@ -7,6 +7,8 @@
 <details>
 <summary> IMPORTANT </summary><br>
 <br><p align="center">These two are faking clips of me while i'm asleep
+  
+<br><p align="center">![image](https://64.media.tumblr.com/c5e4a413565e03c75382d6c0549392d0/9e39a83bce86a7b8-8d/s250x400/7724e825bbba5e7e8b4e8cbd25e792d349ca29d8.pnj)
 <br><p align="center">02:34 PM [340 . waittt uhm abc] I love coal too much she's more than just a piece of coal she's my gf
 <br><p align="center">02:34 PM [340 . waittt uhm abc] I love coal too much she's more than just a piece of coal she is the love of my life
 <img width="463" height="218" alt="image" src="https://github.com/user-attachments/assets/6c1dfbef-0ba2-4a30-9c9f-d8a9cf14daff" />
