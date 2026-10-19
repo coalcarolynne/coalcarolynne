@@ -35,8 +35,9 @@ Hey, one of my ex friends (minibuh/ minnie) has suicide baited, guilt tripped, a
 <br><p align="center">10:17 PM[🌙 whered the sun go???] whispers: like i know you never wanted me around but come on
 you sent this before i blocked you minutes later:
 11:20 PM[she/her pronouns] whispers: i luv u ocoal im sorry for wanting to stop hurting and hurting everyone by wanting to be safe
-i blocked you at 11:22PM EST and had taken a screenshot at 11:23PM EST
-minutes, later you decide to use my ip from one of my previous signs before you left the server & party to make a fake death threat by using inspect element, I don't even type like this unless its a serious post/ doc
+
+I blocked you at 11:22PM EST and had taken a screenshot at 11:23PM EST
+minutes later, you decide to use my IP from one of my previous signs before you left the server & party to make a fake death threat by using inspect element. I don't even type like this unless it's a serious post/ doc
 <br><p align="center">![image](https://files.catbox.moe/benps4.png)
 <br><p align="center">![image](https://files.catbox.moe/0a959v.png)
 <br><p align="center">![image](https://files.catbox.moe/dv6euw.png)
