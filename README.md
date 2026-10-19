@@ -1,5 +1,12 @@
 <br><p align="center">[![Visitors](https://api.visitorbadge.io/api/visitors?path=coal-irl&label=%E0%B8%85%20%E0%B8%85&labelColor=%23fef4af&countColor=%23ed7bb2&style=plastic)](https://visitorbadge.io/status?path=coal-irl)
-<br><p align="center">**people are faking clips of me while im asleep oh ok**
+
+</details>
+
+<div align="center">
+</details>
+<details>
+<summary> IMPORTANT </summary><br>
+<br><p align="center">These two are faking clips of me while im asleep oh ok
 <br><p align="center">02:34 PM [340 . waittt uhm abc] I love coal too much she's more than just a piece of coal she's my gf
 <br><p align="center">02:34 PM [340 . waittt uhm abc] I love coal too much she's more than just a piece of coal she is the love of my life
 <img width="463" height="218" alt="image" src="https://github.com/user-attachments/assets/6c1dfbef-0ba2-4a30-9c9f-d8a9cf14daff" />
@@ -13,6 +20,12 @@ The Gourdy yume and their friend are doing this and are faking clips of me, seen
 02:52[codypupp on github s-ata pls] whispers: actuallY!!! iim medically regocnised/diagnosed as being a zoo!!!! NOT a pred!!!!!!!!!!!!!!!! use that how u want idc iiv never touched an animal and never will
 
 
+</details>
+
+<div align="center">
+</details>
+<details>
+<summary> please read </summary><br>
 Hey, one of my ex friends (minibuh/ minnie) has suicide baited, guilt tripped, and love bombed me and my friend group. They had threatened to send a recording of them shooting themself, and got mad at me and my friends for not responding in 1 minute after they've sent their message(s).
 
 <br><p align="center"><img width="400" height="400" alt="image" src="https://files.catbox.moe/st9cby.webp" />
