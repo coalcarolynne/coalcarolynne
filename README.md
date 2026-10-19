@@ -36,8 +36,9 @@ Hey, one of my ex friends (minibuh/ minnie) has suicide baited, guilt tripped, a
 you sent this before i blocked you minutes later:
 11:20 PM[she/her pronouns] whispers: i luv u ocoal im sorry for wanting to stop hurting and hurting everyone by wanting to be safe
 i blocked you at 11:22PM EST and had taken a screenshot at 11:23PM EST
-minutes, later you decide to use my ip to make a fake death threat by using inspeact element, I don't even type like this unless its a serious post/ doc
+minutes, later you decide to use my ip from one of my previous signs before you left the server & party to make a fake death threat by using inspect element, I don't even type like this unless its a serious post/ doc
 <br><p align="center">![image](https://files.catbox.moe/benps4.png)
 <br><p align="center">![image](https://files.catbox.moe/0a959v.png)
+<br><p align="center">![image](https://files.catbox.moe/dv6euw.png)
 <br><p align="center">Proof of how it easy it is to inspect element:
 <br><p align="center">![image](https://64.media.tumblr.com/a423bbd6e1aa1299478cb22d00d2a7d5/e320fb5a865e1204-59/s500x750/f0a4eab8d46b7955b0318bb9c7a25f56b5db0817.gifv)
