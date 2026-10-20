@@ -21,7 +21,7 @@ minutes later, you decide to use my IP from one of my previous signs before you 
 <br><p align="center">Proof of how it easy it is to inspect element:
 <br><p align="center">![image](https://64.media.tumblr.com/a423bbd6e1aa1299478cb22d00d2a7d5/e320fb5a865e1204-59/s500x750/f0a4eab8d46b7955b0318bb9c7a25f56b5db0817.gifv)
 </details>
-<br><p align="center">I don't usually talk abut stuff like this but really dude? you had the audacity to crown me and just colorpick my pony while im sleeping? like ig bro
+<br><p align="center">I don't usually talk about stuff like this but really dude? you had the audacity to crown me and just colorpick my pony while im sleeping? like ig bro
 <br><p align="center">  08:16 AM[imaunicornihavehorn] whispers: 👑
 <br><p align="center">09:16 AM[Doctordrugs] whispers: Sorry but who are u to call my friend q copy cat anyone can use rainbow colours?????
 
