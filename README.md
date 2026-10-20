@@ -1,29 +1,4 @@
 <br><p align="center">[![Visitors](https://api.visitorbadge.io/api/visitors?path=coal-irl&label=%E0%B8%85%20%E0%B8%85&labelColor=%23fef4af&countColor=%23ed7bb2&style=plastic)](https://visitorbadge.io/status?path=coal-irl)
-
-</details>
-
-<div align="center">
-</details>
-<details>
-<summary> IMPORTANT </summary><br>
-<br><p align="center">These two are faking clips of me while i'm asleep
-  
-<br><p align="center">![image](https://64.media.tumblr.com/c5e4a413565e03c75382d6c0549392d0/9e39a83bce86a7b8-8d/s250x400/7724e825bbba5e7e8b4e8cbd25e792d349ca29d8.pnj)
-<br><p align="center">02:34 PM [340 . waittt uhm abc] I love coal too much she's more than just a piece of coal she's my gf
-<br><p align="center">02:34 PM [340 . waittt uhm abc] I love coal too much she's more than just a piece of coal she is the love of my life
-<img width="463" height="218" alt="image" src="https://github.com/user-attachments/assets/6c1dfbef-0ba2-4a30-9c9f-d8a9cf14daff" />
-<img width="470" height="179" alt="image" src="https://github.com/user-attachments/assets/af439dca-53ba-45cf-ab50-17efc78bcd56" />
-
-The Gourdy yume and their friend are doing this, they are even faking clips of me, as shown above. I have never told anyone in my life to take their own life, this is genuinely such disgusting and shitty behavior to do this because I call you out for liking kids, you and your friends are fucking disgusting, I blocked you for a reason, you are 17 turning 18, you even admitted to being a zoophile too, log off. I'm so tired of you defending yourself by saying "Oh it's an au" "He's aged up" and every other excuse you use, you are a future predator and pedophile who is in denial, please seek help while you can because this is just fucking concerning. I'm glad that you have cut contact with your abusers & groomers, and I hope you get better in the future.
-<br><p align="center">04:18 PM[editing straw] whispers: 2 weirdos at spawn faking being u and your partner
-
-02:52[codypupp on github s-ata pls] whispers: actuallY!!! iim medically regocnised/diagnosed as being a zoo!!!! NOT a pred!!!!!!!!!!!!!!!!
-
-02:52[codypupp on github s-ata pls] whispers: actuallY!!! iim medically regocnised/diagnosed as being a zoo!!!! NOT a pred!!!!!!!!!!!!!!!! use that how u want idc iiv never touched an animal and never will
-
-
-</details>
-
 <div align="center">
 </details>
 <details>
@@ -45,3 +20,9 @@ minutes later, you decide to use my IP from one of my previous signs before you 
 <br><p align="center">![image](https://files.catbox.moe/dv6euw.png)
 <br><p align="center">Proof of how it easy it is to inspect element:
 <br><p align="center">![image](https://64.media.tumblr.com/a423bbd6e1aa1299478cb22d00d2a7d5/e320fb5a865e1204-59/s500x750/f0a4eab8d46b7955b0318bb9c7a25f56b5db0817.gifv)
+</details>
+<br><p align="center">I don't usually talk abut stuff like this but really dude? you had the audacity to crown me and just colorpick my pony while im sleeping? like ig bro
+<br><p align="center">  08:16 AM[imaunicornihavehorn] whispers: 👑
+<br><p align="center">09:16 AM[Doctordrugs] whispers: Sorry but who are u to call my friend q copy cat anyone can use rainbow colours?????
+
+![image](https://files.catbox.moe/3hs5v5.png)
