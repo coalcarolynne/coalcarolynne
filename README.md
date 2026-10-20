@@ -25,4 +25,5 @@ minutes later, you decide to use my IP from one of my previous signs before you 
 <br><p align="center">  08:16 AM[imaunicornihavehorn] whispers: 👑
 <br><p align="center">09:16 AM[Doctordrugs] whispers: Sorry but who are u to call my friend q copy cat anyone can use rainbow colours?????
 "the colors are saturated/ darker" thats because they screeshotted my pony from in-game while mine is from menu
-![image](https://files.catbox.moe/5cajtg.png)
+
+  ![image](https://files.catbox.moe/5cajtg.png)
