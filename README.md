@@ -1,6 +1,6 @@
 <br><p align="center">[![Visitors](https://api.visitorbadge.io/api/visitors?path=coal-irl&label=%E0%B8%85%20%E0%B8%85&labelColor=%23fef4af&countColor=%23ed7bb2&style=plastic)](https://visitorbadge.io/status?path=coal-irl)
 
-<br><p align="center">![image](https://64.media.tumblr.com/96c2e686865ccaee3ef79318b82a6e88/b0a9a50417e4a061-43/s400x600/5396f59c0a4a6d480599d5d89c9181d3991d0617.pnj)
+<br><p align="center">![image](https://wilardo.crd.co/assets/images/gallery03/3f2b571a_original.png?v=fbf31c4c)
  <br><p align="center">[pin](https://www.pinterest.com/bookhazard/) 𓈒 [strawpage](https://bookhazard.straw.page/) 𓈒 [toyhouse](https://toyhou.se/X33)
  <div align="center">
 </details>
@@ -43,7 +43,7 @@ minutes later, you decide to use my IP from one of my previous signs before you 
 
 
 <table align="center"><th>
-<details><summary> <br>$\text{\small\it\color{#d9de72}dni}$</summary>  
+<details><summary> <br>$\text{\small\it\color{#eef279}blacklist + dni}$</summary>  
 <br> ship discourse
 <br> pedos + zoos
 <br> if you have beef with my friends
