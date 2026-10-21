@@ -1,7 +1,7 @@
 <br><p align="center">[![Visitors](https://api.visitorbadge.io/api/visitors?path=coal-irl&label=%E0%B8%85%20%E0%B8%85&labelColor=%23fef4af&countColor=%23ed7bb2&style=plastic)](https://visitorbadge.io/status?path=coal-irl)
 
 <br><p align="center">![image](https://wilardo.crd.co/assets/images/gallery03/3f2b571a_original.png?v=fbf31c4c)
- <br><p align="center">[pin](https://www.pinterest.com/bookhazard/) 𓈒 [strawpage](https://bookhazard.straw.page/) 𓈒 [toyhouse](https://toyhou.se/X33)
+ <br><p align="center">[ata](https://coal.atabook.org/) 𓈒 [strawpage](https://bookhazard.straw.page/) 𓈒 [toyhouse](https://toyhou.se/X33)
  <div align="center">
 </details>
 <details>
