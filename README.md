@@ -1,5 +1,8 @@
 <br><p align="center">[![Visitors](https://api.visitorbadge.io/api/visitors?path=coal-irl&label=%E0%B8%85%20%E0%B8%85&labelColor=%23fef4af&countColor=%23ed7bb2&style=plastic)](https://visitorbadge.io/status?path=coal-irl)
-<div align="center">
+
+<br><p align="center">![image](https://64.media.tumblr.com/96c2e686865ccaee3ef79318b82a6e88/b0a9a50417e4a061-43/s400x600/5396f59c0a4a6d480599d5d89c9181d3991d0617.pnj)
+ <br><p align="center">[pin](https://www.pinterest.com/bookhazard/) 𓈒 [strawpage](https://bookhazard.straw.page/) 𓈒 [toyhouse](https://toyhou.se/X33)
+ <div align="center">
 </details>
 <details>
 <summary> please read </summary><br>
@@ -35,9 +38,30 @@ minutes later, you decide to use my IP from one of my previous signs before you 
 <br><p align="center">Proof of how it easy it is to inspect element:
 <br><p align="center">![image](https://64.media.tumblr.com/a423bbd6e1aa1299478cb22d00d2a7d5/e320fb5a865e1204-59/s500x750/f0a4eab8d46b7955b0318bb9c7a25f56b5db0817.gifv)
 </details>
-<br><p align="center">I don't usually talk about stuff like this but really dude? you had the audacity to crown me and just colorpick my pony while im sleeping? like ig bro
-<br><p align="center">  08:16 AM[imaunicornihavehorn] whispers: 👑
-<br><p align="center">09:16 AM[Doctordrugs] whispers: Sorry but who are u to call my friend q copy cat anyone can use rainbow colours?????
-"the colors are saturated/ darker" thats because they screeshotted my pony from in-game while mine is from menu
 
-  ![image](https://files.catbox.moe/5cajtg.png)
+<p align="center">
+
+
+<table align="center"><th>
+<details><summary> <br>$\text{\small\it\color{#d9de72}dni}$</summary>  
+<br> ship discourse
+<br> pedos + zoos
+<br> if you have beef with my friends
+<br> Fictionkilled Family 
+<br> Karin / Jill (pedo)
+<br> Minnie
+<br> banbanned (the three musks)
+<br> RIGM0RMORTIS (the three musks)
+<br> robotinretrospect (the three musks)
+<br> luiceren 
+<br> kitdere
+<br> cocopuffpuffs
+<br> laceduppup
+<br> SideCharacter-001
+<br> Dandyzworldyuri
+<br> arthurmorganslove (the pedophile pals) 
+<br> m4gg0tzz / codyypup (the pedophile pals)
+<br> PennywisefansDN (the pedophile pals)
+<br> a1p1yuri
+
+<br> this will be updated whenever, your on here for a reason so don't bother asking why.
