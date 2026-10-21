@@ -31,7 +31,8 @@ you sent this before i blocked you minutes later:
 11:20 PM[she/her pronouns] whispers: i luv u ocoal im sorry for wanting to stop hurting and hurting everyone by wanting to be safe
 
 I blocked you at 11:22PM EST and had taken a screenshot at 11:23PM EST
-minutes later, you decide to use my IP from one of my previous signs before you left the server & party to make a fake death threat by using inspect element. I don't even type like this unless it's a serious post/ doc, update from the phone ss, you can edit ata messages, I only signed Minnie's ata ONCE and it was a joke about my fg
+minutes later, you decide to use my IP from one of my previous signs before you left the server & party to make a fake death threat by using inspect element. I don't even type like this unless it's a serious post/ doc, update from the phone ss, you can edit ata messages, I only signed Minnie's ata ONCE and it was a joke about my fg, you also called my  friend the f slur for no reason bro
+<br><p align="center">![image](https://64.media.tumblr.com/594f85d8eb609771847e0645a168fbfd/c2e0212c44549c2e-b9/s540x810/9aff8dd425d2179ac60d35fb37683ed78eb52148.pnj)
 <br><p align="center">![image](https://files.catbox.moe/benps4.png)
 <br><p align="center">![image](https://files.catbox.moe/0a959v.png)
 <br><p align="center">![image](https://files.catbox.moe/dv6euw.png)
