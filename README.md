@@ -60,9 +60,6 @@ minutes later, you decide to use my IP from one of my previous signs before you 
 <br> laceduppup
 <br> SideCharacter-001
 <br> Dandyzworldyuri
-<br> arthurmorganslove (the pedophile pals) 
-<br> m4gg0tzz / codyypup (the pedophile pals)
-<br> PennywisefansDN (the pedophile pals)
 <br> a1p1yuri
 
 <br> this will be updated whenever, your on here for a reason so don't bother asking why.
